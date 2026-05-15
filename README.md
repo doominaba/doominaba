@@ -1,2 +1,1 @@
-shiawase desu
-shiawase desho?
+lobotomy
