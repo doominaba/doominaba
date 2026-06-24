@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/9c7b13f6714c950b32dc0e8b61a29fd4/43b94d9b1541dd9d-e6/s400x600/f4a8e6bed68470843184c1bd1f330704444ae17e.pnj)
 
-<p>　　 　　　　　ᨸ꒰ྀི　　doom　　𝚘𝚛　　ket　　ྀིᨯ</p>
-<p>　　 　　　　　 𝄈　　 he　　╱　　they　 　🪽</p>
+<p>　　 　　　　ᨸ꒰ྀི　　doom　　𝚘𝚛　　ket　　ྀིᨯ</p>
+<p>　　 　　　　 𝄈　　 he　　╱　　they　 　🪽</p>
 
 <p>　　 　　　 　　　 　　　 𓎢𓎟𓎟𓎡</p>
 
